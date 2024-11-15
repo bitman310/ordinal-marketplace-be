@@ -16,8 +16,8 @@ This is the Ordinal Marketplace in which users could sell and buy Ordinals by ho
 
 ## Contact Me
 
-Telegram: [@dwlee918](https://t.me/@diasibt)
+Telegram: [@diasibt](https://t.me/@diasibt)
 
-X: [@derricklee918](https://x.com/DiasIbt101)
+X: [@DiasIbt101](https://x.com/DiasIbt101)
 
 Discord: [@dias_ishbulatov](https://discordapp.com/users/1213745904599961631)
